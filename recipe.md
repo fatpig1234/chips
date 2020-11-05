@@ -1,0 +1,7 @@
+Pour the vegetable oil into a plastic bag (a produce bag works well). Add the potato slices, and shake to coat.
+
+Step 2
+Coat a large dinner plate lightly with oil or cooking spray. Arrange potato slices in a single layer on the dish.
+
+Step 3
+Cook in the microwave for 3 to 5 minutes, or until lightly browned (if not browned, they will not become crisp). Times will vary depending on the power of your microwave. Remove chips from plate, and toss with salt (or other seasonings). Let cool. Repeat process with the remaining potato slices. You will not need to keep oiling the plate.
